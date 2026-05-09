@@ -1,1 +1,2 @@
 # qs-banner-builder
+Hello qs banner builder is a custom banner maker mainly used with affiliate marketers or anyone wanting to advertise their products. inside you can upload your own images. change fonts, colors and I have many sizes of banner you can create. also this is an affiliate off that you to can make money off of .50% commission and you have ur affiliate links and banners and emails ready to go to send to your list. 
